@@ -9,9 +9,9 @@
 ## 🧐 About
 
 - 👨‍💻 My blog: https://skyseek.top
-- 📫 How to reach me: howtoll@qq.com
+- 📫 How to reach me: yalisky@outlook.com
 
 
 ⭐️ From [mafqla](https://github.com/mafqla)
 
-<img src="https://imgur.com/rilHVxA.png"/>
+
