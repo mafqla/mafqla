@@ -8,7 +8,6 @@
 
 ## 🧐 About
 
-- 👨‍💻 My blog: https://skyseek.top
 - 📫 How to reach me: yalisky@outlook.com
 
 
